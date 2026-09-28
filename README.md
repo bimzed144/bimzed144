@@ -1,4 +1,4 @@
-# Hi, I'm Bim Zed 👋
+# Hi, I'm Olivier 👋
 
 ### Software Developer | Builder | Future Founder
 
